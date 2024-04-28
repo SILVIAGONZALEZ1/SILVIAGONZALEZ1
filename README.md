@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **devsoftwaregonzalez@gmail.com**
 
-- ⚡ Fun fact **¿Por qué los pájaros no usan Facebook? Porque ya tienen Twitter.**
+- ⚡ Fun fact **La Torre Eiffel puede ser 15 cm más alta durante el verano.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
